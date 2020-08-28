@@ -1,3 +1,3 @@
 # SSS
 About Me
-Hi I am Siddharth Sinh Solanki
+Hi I am Siddharth Singh Solanki
